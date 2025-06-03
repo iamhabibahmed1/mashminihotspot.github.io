@@ -1,0 +1,1 @@
+# mashminihotspot.github.io
